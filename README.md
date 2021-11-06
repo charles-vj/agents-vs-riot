@@ -1,1 +1,1 @@
-# agents-vs-riot
+# Anti Zucc Squad
